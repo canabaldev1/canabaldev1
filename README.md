@@ -7,7 +7,7 @@
 
 - Contactame **canabal.dev1@gmail.com**
 
-- Este es mi Curriculum Vitae [https://drive.google.com/file/d/1VaO2XSJuptX375c89Au9HqPFS7uSYhkf/view?usp=sharing](https://drive.google.com/file/d/1VaO2XSJuptX375c89Au9HqPFS7uSYhkf/view?usp=sharing)
+- Este es mi Curriculum Vitae [Click aqui](https://drive.google.com/file/d/1VaO2XSJuptX375c89Au9HqPFS7uSYhkf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
